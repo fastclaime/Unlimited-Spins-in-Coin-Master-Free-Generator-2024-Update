@@ -1,4 +1,4 @@
-# Unlimited Spins-in Coin Master Free Generator 2024 Update
+# Unlimited Spins in Coin Master Free Generator 2024 Update
 
 --------------------------------------------
 [✅CLICK HERE TO GET NOW FREE!](https://freeforyou.xyz/coinmaster)
